@@ -1,1 +1,1 @@
-# The-creative-mess
+Blue + Sky Blue + Soft Pink artist portfolio for GitHub Pages
